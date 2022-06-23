@@ -1,6 +1,6 @@
-hello all! =)
-17 (she/her)
-rising senior at gbwhs
+hello all! =) ->
+17 (she/her) ->
+rising senior at gbwhs ->
 i like coding and corporate core haha
 
 <!---
